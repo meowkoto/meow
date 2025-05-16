@@ -15,4 +15,6 @@ im in a lot of fandoms but currently my main ones are bungo stray dogs, jujutsu 
 
 i suck ASS at socializing so im so sorry if i seem dry or awkward 💔💔
 
+pls ask before going to my location !!
+
 spam followers kindly dni
